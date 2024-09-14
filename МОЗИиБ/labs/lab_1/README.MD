@@ -1,6 +1,6 @@
 ## Лабораторная работа 1: [rutube](https://rutube.ru/video/private/c204d6bcc08e3a15f97841098369be69/?p=KeeApKFC4X10Bgn8dWnffw)
-## Подготовка отчёта 1: [rutube]()
-## Подготовка презентации 1: [rutube]()
+## Подготовка отчёта 1: [rutube](https://rutube.ru/video/private/dd99000c2b646666b5f7b689268dddbe/?p=uUjKokT16eYNBKKEu1UFmA)
+## Подготовка презентации 1: [rutube](https://rutube.ru/video/private/dd99000c2b646666b5f7b689268dddbe/?p=uUjKokT16eYNBKKEu1UFmA)
 ## Защита презентации 1: [rutube]()
 
 ## Лабораторная работа 1: [платформа](https://plvideo.ru/watch?v=IGK3Ujleee76)
